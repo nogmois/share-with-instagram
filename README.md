@@ -1,1 +1,1 @@
-# share-with-instagram
+# share-with-instagram apenas imagem 
